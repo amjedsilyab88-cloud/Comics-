@@ -1,0 +1,1 @@
+A short story about Majoo and his friend Farid finding a stray cat. This illustrated short story is about raising a stray cat at home, but its mother refuses to let it stay and asks him to return it to where he found it.
